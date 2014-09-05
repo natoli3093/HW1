@@ -1,2 +1,0 @@
-Kyle Natoli
-Chicago Cubs
